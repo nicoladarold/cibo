@@ -9,6 +9,7 @@ Evitare pezzi, soprattutto nella pasta (funghi, piselli, ...)
 - Pasta in bianco
 - Pasta al pomodoro
 - Pasta al ragu
+- Pasta al pesto
 - Pasta alle vongole (le vongole possono essere intere)
 - Riso in bianco
 - Risotti vari, possibilmente senza pezzetti, frullare
