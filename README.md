@@ -19,6 +19,7 @@ Evitare pezzi, soprattutto nella pasta (funghi, piselli, ...)
 - Passato di verdure
 
 ## Secondi
+- Uovo alla coque (Francesco)
 - Fetta di pollo ai ferri (con salsa di soia)
 - Trancio di salmone, con salsa di soia
 - Trancio di tonno o pesce spada (Silvia)
